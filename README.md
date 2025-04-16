@@ -42,7 +42,7 @@ I bring a dual perspective to innovation and sales, using data-driven insights t
 
 ## 🎓 Educational Background
 
-- **MBA in Business Analytics & Finance (Ongoing)**  
+- **MBA in Business Analytics**  
   *AIMS Institute of Management, Pune*
   
 - **BBA in Business Analytics**  
